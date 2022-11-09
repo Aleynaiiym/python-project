@@ -1,1 +1,1 @@
-bir şey
+yapıcaz inşallah 
