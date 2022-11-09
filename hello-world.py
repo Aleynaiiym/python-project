@@ -1,1 +1,1 @@
-herhangi bir şey :)
+bir şey
